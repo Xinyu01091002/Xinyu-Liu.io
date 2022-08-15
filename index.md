@@ -1,4 +1,4 @@
-![Recent Photo](/ZZ[HM}(PSR@_U1AE9KM%VNJ.jpg)
+![RUNOOB 图标](http://static.runoob.com/images/runoob-logo.png)
 # Welcome to Xinyu's Personal WebPages
 
 
