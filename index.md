@@ -1,4 +1,4 @@
-![](figures/ZZ[HM}(PSR@_U1AE9KM%VNJ.jpg)
+![Recent Photo](/figures/ZZ[HM}(PSR@_U1AE9KM%VNJ.jpg)
 # Welcome to Xinyu's Personal WebPages
 
 
